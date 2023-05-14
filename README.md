@@ -1,7 +1,7 @@
 Hi there, 
 I'm Siranjeevi
 
-<a href = https://www.instagram.com/_siranjeevi_08 > you can reach out on insta </a>
+reach out on <a href = https://www.instagram.com/_siranjeevi_08 >insta </a>
 
 ᶜᵘʳʳᵉⁿᵗˡʸ ˡᵉᵃʳⁿᶦⁿᵍ ᵐᵃᵖᵖᶦⁿᵍ
 
